@@ -1,4 +1,4 @@
-# Diário de bordo: Minha Trajetória Reprograma
+# Diário de bordo: Minha Trajetória na Reprograma
 
 ## Sejam bem vindes!
 
